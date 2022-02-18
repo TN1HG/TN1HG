@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TN1HG
+- </> I Like <a href="https://w3schools.com">Coding</a>, Play <a href="minecraft.net">Games</a> And Reading Books, ...
+- View Your <a href="https://TN1HG.ml">Website</a>
+- Discord <a href="https://discord.gg/jFZd7swEEe">Invite</a>
+- Youtube <a href="https://www.youtube.com/channel/UCS4bPXqqi2voQRRSQGjj9jA?sub_confirmation=1">Channels</a>
+- It's Is GoodDay =3
